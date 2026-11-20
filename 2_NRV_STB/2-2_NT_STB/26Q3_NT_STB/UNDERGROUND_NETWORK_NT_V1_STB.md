@@ -41,3 +41,20 @@ Here’s where shit gets interesting. The resistance knows about the network and
 The problem I have to watch this one is that I think I want to stick with a small group of friends and family taking down the Underground Network without it being this epic battle of Underground Network vs Underground Network. It’s giving epic fansatsy or fucking Marvel and I don’t want to go down that route. But, I do like the idea of an underground resistance.
 I think almost no one knows about it at all. The underground network might be an open secret. I don’t know if it’s an open secret exactly or not, but I think a lot more people know about it, but I don’t think that everyone knows about it.
 A lot less people know about the resistance and that is by design by the resistance. If they get their cover blown, they’re completely fucked. If word got back to the underground network, they would be completely fucked. The Underground Network has power that the resistance doesn’t. They also have a lot more backing and a lot more money. It goes back to the idea of them taking their anger out in a way that’s acceptable within the fucked up system.
+
+I think they both of them realize that they have feelings for each other before they knew that each other was gay. This seems kind of contrived but, I was a gay teenager and I know how this shit works so I might change it down the line, but for now, I’m just going to go with it. They were just too scared to tell each other. My thought process is that they both didn’t want to lose each other so the come to the realization that it’s better to just be friends then to loose each other. It sounds corny but the question is will it work for the both of them or do I just need to keep it to only one?
+I think my best bet would be to have them go down similar paths, but make them unique to each of them. Like Jess might experience and feel abc and Ingrid might experience and feel xyz.
+
+Their romance builds up over time. It comes to ahead when it during junior year and they start dating as a couple the night of prom.
+
+How does it build up over Junior year to the place we get during junior prom?
+What makes them both feel safe and secrue enough to start flirting a bit and open up about their true emotions with everything going on?
+How does prom work out and why is it that it’s freaking prom of all nights?
+
+I’m really intirgued by that last question because it’s a fair fucking agrument. I like to kind of go outside the bounds of what’s expected and I think I want to do that here as well. The only thing I can think of is that I don’t know where I was going with this. Oh yeah, the timeline. [TIMELINE] Always the fucking timeline because prom gives me a good time anchor to base events around and I really like that idea. But I do think I still set up the timeline and one, use prom as one of my anchors and two, have
+I them get together offically as a couple around the time that prom takes place and the end of the school year without it actually taking place on prom night if I decide to shake shit up a bit. want to have them grow closer as a couple as summer comes and goes into senior year as a strong, loving, perfectly imperfect sapphic couple which all of their friends love and accept.
+
+Scene ideas: Jess and Ingrid get together
+Prom (?)
+
+I do know that prom is at least talked about in the book. I haven’t decided if I just want to mention it or if I want to do it as a full ass scene. I’ll see how things shape up and [COME BACK TO THIS].
