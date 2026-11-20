@@ -61,3 +61,9 @@ It was the magical night and everything they dreamed of came true, plus more. Th
 Keyword: Non disabled students.
 Okay, this idea might be petty and shit, but let me get this out of my head. This came from the idea of the prom being more geared towards non disabled students and that is a whole different rabbit hole to explore. Is there a separate prom for disabled students or is that too close to the civil rights movement and I don’t want to steal of disabled people. 
 My idea is disabled students get ‘special treatment’ and some of the non disabled people are jealous and I can connect it to the recruitment group and Gavin.
+
+Random dialogue ideas
+Gavin: I did this for us.
+Jess: No, you did it for yourself.
+
+I think I’m remembering that from a movie or some shit.
