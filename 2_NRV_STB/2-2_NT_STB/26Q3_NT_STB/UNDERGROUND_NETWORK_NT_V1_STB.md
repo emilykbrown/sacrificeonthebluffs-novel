@@ -41,3 +41,17 @@ Here’s where shit gets interesting. The resistance knows about the network and
 The problem I have to watch this one is that I think I want to stick with a small group of friends and family taking down the Underground Network without it being this epic battle of Underground Network vs Underground Network. It’s giving epic fansatsy or fucking Marvel and I don’t want to go down that route. But, I do like the idea of an underground resistance.
 I think almost no one knows about it at all. The underground network might be an open secret. I don’t know if it’s an open secret exactly or not, but I think a lot more people know about it, but I don’t think that everyone knows about it.
 A lot less people know about the resistance and that is by design by the resistance. If they get their cover blown, they’re completely fucked. If word got back to the underground network, they would be completely fucked. The Underground Network has power that the resistance doesn’t. They also have a lot more backing and a lot more money. It goes back to the idea of them taking their anger out in a way that’s acceptable within the fucked up system.
+
+Another connection I made is something I just had in my head and it was brilliant, but now I lost it and now I’m mad at myself. It was connecting three of the fucking.
+
+Was it disabled students, non disabled students, and something else? Was it the Underground Network? Hm… I also feel like there’s something there with the Underground Network, the resistance, and a third point that I have to fucking figure out yet. 
+
+One thing I do know I want to do is go fucking shit! I think there’s tension between the disabled students and the non disabled students and I think I can do it without getting too petty.
+
+I think if I want to do this, an important part to start from is to remember that both sides… I don’t even want to call them sides becauswe I don’t want to pit them against each other so I am going to say both groups of people… both of them have legit complaints I need to keep in mind. Complaints, problems, grievences. [WC] 
+
+I also realize that I have a huge bias myself and I’m not afraid to say it, but I do realize the other side do have some legit concerns as well. Even if I think that it might just be their feelings… it’s still hurting them and their pain is valid. Ok, I’ll give them that. What isn’t valid is that they use their pain and trauma as an excuse for ableism and it factors into the ableism of the town and the Underground Network which is what I think I was trying to get to, hopefully. And that is how the recruitment happens and where it comes in if I’m not mistaken. If I am, well then, fuck me. But let’s just go with this and go fuck ourselves.
+
+They take the legit pain and concerns and they keep feeding bullshit into it until it becomes legit and ableism. It’s almost like I’m doing commentary or some shit.
+
+Ok, one of my ideas came in from left field and this might cause me to start over, but let’s just fucking do this and hear myself out. Ok, so my crazy idea is to change all of this to an allegory, like Lord of the Flies or Animal Farm, but I have no idea what I would do for it. And I wouldl have to throw away like 20,000 words of prep work (more like 70k+ if I could all the work I did before in 2020), but it might be worth it. I’ll sleep on it and explore it tomorrow.
