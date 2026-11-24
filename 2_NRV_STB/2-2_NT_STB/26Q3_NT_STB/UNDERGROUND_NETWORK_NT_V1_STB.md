@@ -55,3 +55,12 @@ I also realize that I have a huge bias myself and I’m not afraid to say it, bu
 They take the legit pain and concerns and they keep feeding bullshit into it until it becomes legit and ableism. It’s almost like I’m doing commentary or some shit.
 
 Ok, one of my ideas came in from left field and this might cause me to start over, but let’s just fucking do this and hear myself out. Ok, so my crazy idea is to change all of this to an allegory, like Lord of the Flies or Animal Farm, but I have no idea what I would do for it. And I wouldl have to throw away like 20,000 words of prep work (more like 70k+ if I could all the work I did before in 2020), but it might be worth it. I’ll sleep on it and explore it tomorrow.
+
+A path to go down if I want to:
+The underground network has some knowledge of the resistance. They probably know way more than the resistance thinks they know or wants them to know. I don’t know much they both know about each other or not. My brain is dead. Fuck me! I need sleep.
+
+Main parts to keep (if I want to do some allegory) 
+Killing disabled peopleand kids and excusing the killing with sympathy and saying ‘we don’t have any idea what they were going through.’
+
+
+Another totally different idea we could go with is that the Catalyst is non disabled girl being killed and the town finally reacting in a way that’s the appropriate and expected reaction from the public which makes some of disabled people just confused and pissed and things go from there. I don’t know if I’m going to actually use that or not, but why the hell did I not figure that out sooner.
