@@ -63,4 +63,37 @@ Main parts to keep (if I want to do some allegory)
 Killing disabled peopleand kids and excusing the killing with sympathy and saying ‘we don’t have any idea what they were going through.’
 
 
-Another totally different idea we could go with is that the Catalyst is non disabled girl being killed and the town finally reacting in a way that’s the appropriate and expected reaction from the public which makes some of disabled people just confused and pissed and things go from there. I don’t know if I’m going to actually use that or not, but why the hell did I not figure that out sooner.
+Another totally different idea we could go with is that the Catalyst is non disabled girl being killed and the town finally reacting in a way that’s the appropriate and expected reaction from the public which makes some of disabled people just confused and pissed and things go from there. I don’t know if I’m going to actually use that or not, but why the hell did I not figure that out sooner
+\A little girl is killed after decades of disabled kids getting killed and no one gives a fuck. Some people are really confused about. This group of people and this team look into this bullshit, and they don't know what's going on or what they're going to find. What's going on? 
+The town has a ‘perfectly good’ explanation for this. I just have to figure out what it is.
+So, let’s do some save the Cat.
+
+If I want this to be the Catalyst, I will have to spend time on the during the setup laying groundwork for the idea of the town not really giving a shit of when disabled kids go missing. But when the little girl goes missing, people in town will act in a way you’d expect people to act when a child goes missing which confuses and angers a lot of people.
+
+But how can I tie this into my characters and their journies? I think a smart idea would be to connect this to the Underground Network and the resitance.
+
+Or maybe it has nothing to do with them. It is a totally separate one and done. It happens in the middle of the night. It is hard to on everyone. She was beloved by everyone. Shit, I don’t want to lean into all the true crime troupes and I really want to respect this character as a human and as a person. I don’t want to throw this under the rug, but I do want there to be a dialogue surrounding the different reactions. 
+It's not bad that people show concern for this girl. It’s bad that people aren’t showing the same concern for other kids who go missing. I think that's a really cool idea: not only to play around with, but also to bring up and discuss38 in the book. When disabled people bring the difference up, they are accused of not caring for the girl which isn’t true. They keep both about the girl and the other kids. Why can't the other people also do this? 
+But other people point out time and place, which is true, but so are the concerns of the disabled people. It causes massive tension in the town and does it… my question is how tense do I want to make everything when this all happens? Does this expose the resistance in some way that they can’t come back from? That might be interesting. And I think Jess, Lauren, and Ingrid are some of the people who really raise concerns because they have no idea what’s going on. They start curious and they quickly turn pissed off and afraid. Again, what the ever living fuck is going on?
+So, the Catalyst is the girl going missing and the Build Up is the town’s reaction. At first, our characters are relieved that the town is reacting this way, but it becomes more eerie, and I think that’s my Break Into Two scene.
+This isn’t a murder mystery and I don’t know how to do this plot among my 20 other different plots. The main difference with this is the contrast which I love the idea of. 
+
+This isn’t a murder mystery and I don’t know how to do this plot among my 20 other different plots. The main difference with this is the contrast which I love the idea of. 
+
+There might be a difference between the characters respecting her death, and me as the author respecting her death.
+
+My novel shouldn’t ask the question, "What happened to this girl?" My novel should ask, "Why the hell is the town finally reacting like rational adults about this?” 
+While they’re relieved with the reaction, they do ask, “Why do people always react this way?” They are confused, and then, it turns into hurt and and, then anger. And when they start poking around and the Underground Network gets introduced.
+
+What to include in the Setup
+Jess and Gavin’s relationship
+Found family
+Jess, Ingrid, and Laurel’s long standing friendship and almost sisterhood. 
+Gavin and Laurel’s friendship.
+Jess and Ingrid’s relationship
+Jess’ queerness and relationship with Ingrid
+I’m drunk and I don’t know what the fuck I’m saying. By the time that junior year starts, I have to figure out how much Jess and Ingrid know about each other’s queerness and where they are in terms of their relationship.
+School and the town
+The missing disabled kids and the town’s lack of reaction.
+How does Jess and the gang feel about the lack of reaction?
+I feel like Jess feels deeply about this and has one toe in the door as to something keeps up. 
