@@ -97,3 +97,6 @@ School and the town
 The missing disabled kids and the town’s lack of reaction.
 How does Jess and the gang feel about the lack of reaction?
 I feel like Jess feels deeply about this and has one toe in the door as to something keeps up. 
+
+Is Gavin already fucking around with the cult group? I think I need to set up Gavin’s and Jess’s relationship being close before he starts acting weird. I think it would hit harder if we see how close they were before all the fuck shit happens and he starts 	pulling the way and we get the pain Jess is feeling because we are feeling the same way to. The turn should feel like a gut punch. I hope readers fall in love with Gavin so I can rip it all away from them.
+I think he’s at least at the start of going with the fuckshit cult.
